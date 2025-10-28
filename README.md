@@ -1,0 +1,1 @@
+ini menggunakan expo pa
